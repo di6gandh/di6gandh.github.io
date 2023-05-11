@@ -6,7 +6,7 @@
 ------
 :heart: :point_right: 【永久地址】 ：[di6gandh.com/d6g](https://www.di6gandh.com/d6g)
 ------
-:sparkles:重要提醒:sparkles:收藏本页面(jiuse.tv)，避免迷路！
+:sparkles:重要提醒:sparkles:收藏本页面，避免迷路！
 ==
 
 -
