@@ -4,7 +4,7 @@
 ------
 :heart: :point_right: 【最新地址】 ：[https://d6gdh.com/d6g](https://d6gdh.com/d6g)
 ------
-:heart: :point_right: 【永久地址】 ：[di6gandh.com/d6g](https://www.di6gandh.com/d6g)
+:heart: :point_right: 【永久地址】 ：[https://di6gandh.com/d6g](https://www.di6gandh.com/d6g)
 ------
 :sparkles:重要提醒:sparkles:收藏本页面，避免迷路！
 ==
