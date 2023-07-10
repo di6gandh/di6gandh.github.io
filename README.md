@@ -1,8 +1,12 @@
 :sparkles::sparkles:第6感导航 最新地址发布:sparkles::sparkles:
 ==
+:heart: :point_right: 【最新地址】 ：[https://d6gdh.fun/d6g](https://d6gdh.fun/d6g)
+------
 :heart: :point_right: 【最新地址】 ：[https://d6gdh.xyz/d6g](https://d6gdh.xyz/d6g)
 ------
 :heart: :point_right: 【最新地址】 ：[https://d6gdh.com/d6g](https://d6gdh.com/d6g)
+------
+:heart: :point_right: 【永久地址】 ：[https://di6gandh.xyz/d6g](https://www.di6gandh.xyz/d6g)
 ------
 :heart: :point_right: 【永久地址】 ：[https://di6gandh.com/d6g](https://www.di6gandh.com/d6g)
 ------
